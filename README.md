@@ -1,4 +1,4 @@
-👋 Hi added, I'm @Zeropro
+👋 I'm @Zeropro
 
 🔍 Exploring: Tech, AI, and Cybersecurity
 
